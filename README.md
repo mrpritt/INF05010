@@ -20,7 +20,7 @@
 ## Notícias
 
 * As aulas começam no dia 10 de março.
-* Otimização: [O que você consegue fazer eu faço melhor](https://youtu.be/Dc38La-Xvog|tudo) 8-)
+* Otimização: [O que você consegue fazer eu faço melhor](https://youtu.be/Dc38La-Xvog|tudo) 😃
 
 ## Materiais
 
